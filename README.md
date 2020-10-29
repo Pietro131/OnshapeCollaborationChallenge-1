@@ -2,7 +2,7 @@
 
 # Group
 
-My group was me and Zachary Siller.
+My group was Zachary Siller and I.
 
 # Preparation
 
